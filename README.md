@@ -1,5 +1,5 @@
 # SuperCoolProject
 
-Man, the guy who was here before me has confidence issues.
+Man, the guy who was here before me has confidence issues!
 
 Aaron Peercy
