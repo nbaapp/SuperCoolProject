@@ -1,5 +1,5 @@
 # SuperCoolProject
 
-Guys im having second thoughts, this might not be as cool as I thought.
+Man, the guy who was here before me has confidence issues.
 
-Mark Fuller
+Aaron Peercy
